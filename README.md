@@ -7,7 +7,7 @@ important links <br>
 https://iyowa.straw.page <br>
 https://iyowa.atabook.org/ <div> 
 </P> 
-<P>i've read all about those creatures that seem to dig their claws in their forefeet in an encyclopedia!
+<P>i've read all about those  <a href="https://www.youtube.com/watch?v=ruBxsq03FZo">creatures</a> that seem to dig their claws in their forefeet in an encyclopedia!
 <P> <img src="https://static.wikia.nocookie.net/igusuriplease/images/8/8b/%E9%83%BD%E5%90%88%E3%81%AE%E3%81%84%E3%81%84%E3%81%93%E3%81%A8%E3%82%92_....png/revision/latest?cb=20240428180659" </P>
   
-<P> https://www.youtube.com/watch?v=ruBxsq03FZo
+
