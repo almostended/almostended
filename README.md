@@ -1,6 +1,6 @@
 <p align="center">
 <img src="https://media.discordapp.net/attachments/974944259864145920/1256976086974337116/045160434c39afe6cf210580c79044ffb46248d6.png?ex=6682b9b4&is=66816834&hm=62fb30e912f9a7b9d57528dec5cc3712bd9a3546016401530ac2df5cae1c374c&=&format=webp&quality=lossless&width=2000&height=80"> <br>
-<img src="https://media.discordapp.net/attachments/974944259864145920/1256973575336886272/Untitled103_20240630215910.PNG?ex=6682b75d&is=668165dd&hm=90ce43ffd1d9212781acbb26bf42017c44c979538cabb3e7ffd6ad0ddca7cfe3&=&format=webp&quality=lossless&width=400&height=400"> 
+<img src="https://media.discordapp.net/attachments/974944259864145920/1256973575336886272/Untitled103_20240630215910.PNG?ex=6686abdd&is=66855a5d&hm=783490c68957653acf842e2bd1c105e214801fc1a8c26053ddad2f7079dbe96f&=&format=webp&quality=lossless&width=400&height=400"> 
 </p>
 <p align="center">
 is it okay if my steps are <a href="https://www.youtube.com/watch?v=TZlIBKfEB6M">crooked?</a> right now, I just want to dance with <a href="https://github.com/roseatedesire">you.</a> <br> <br>
