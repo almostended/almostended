@@ -1,3 +1,4 @@
+<p align="center">
 <b>lamp</b>/mae <br>
 really autistic about iyowa and fautis. like really really <br>
 </p>
