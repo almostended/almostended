@@ -11,7 +11,8 @@ I love lcb212 ‎‎  ‎‎! ‎  hate on them and I will blow you up with my M
 take inspo from my ponies idgaf they're pixels but don't steal ok? <br> <br>
 
 
-<img src=https://files.catbox.moe/oofrix.png> <img src=https://files.catbox.moe/7dngho.png>
+<img src=https://files.catbox.moe/oofrix.png> <img src=https://files.catbox.moe/7dngho.png> <br> <br> <br>
+<img src=https://files.catbox.moe/css7hj.png>
 
 
 
